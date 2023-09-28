@@ -2,5 +2,7 @@ Luxury Factory was created to ensure you to get your loved designer winter footw
 When it comes to winter uggs, we deliver in spades! The Luxury Factory is a marketplace to dive deep into the world of high-end products from top designers across the globe. With a deep understanding of the pre-loved winter footwear industry since 2011, The Luxury Factory is a good market. The Luxury Factory accepts and ships deisigner items to 90+ countries that span Asia, North America, Africa, South America, Australia, Europe, and Oceania.
 Update New Items Timely
 We provide wonderful designer shoes including designer classic, boots, slippers, sneakers, etc. We keep update our designer items and add the new items timely.
+
 haocheng969@gmail.com
+
 Thank you！
